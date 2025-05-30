@@ -1,3 +1,6 @@
 *burp*
 
-contact my [discord](https://discordapp.com/users/451335202342436866) if emergency
+* 18 years old
+* Computer Science
+* **Linux** User (Ubuntu)
+* Sometimes web development, sometimes app development
